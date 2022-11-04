@@ -1,0 +1,1 @@
+# need_help_to_analize_UnAMIGA_MINIMIG_CORE
